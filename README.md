@@ -47,7 +47,7 @@ In the meantime, check out our website and social media channels to learn more a
 ## About the Art
 - 5,000 Collection Size
 - 3.5% Royalties
-- 8 Properties | 200+ Traits
+- 6 Properties | 200+ Traits
 - 10 1/1 Designs
 - Main Types:
   - APToon Citizen
